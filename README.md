@@ -12,7 +12,7 @@ https://github.com/Anushreebasics/WebDev/assets/122273783/9d8471ec-6732-4829-8bc
 
 2. Task1:
    
-https://github.com/Anushreebasics/WebDev/assets/122273783/f46f391f-bf61-4a34-9fb5-bdea6c9788eb
+
 
 
 
