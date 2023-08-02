@@ -6,5 +6,10 @@
 
 
 2. UI/UX Task:
+
+
+https://github.com/Anushreebasics/WebDev/assets/122273783/9d8471ec-6732-4829-8bc5-756da672e46c
+
+
    
-https://github.com/Anushreebasics/WebDev/assets/122273783/32168351-648d-4109-a117-edb9c1afda31
+
